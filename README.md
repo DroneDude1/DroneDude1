@@ -7,6 +7,9 @@ I am looking for internships in Northern Nevada, Reno, Carson City, Sparks, etc.
 Enjoy!
 
 
+Check back soon. I am on the verge of something big.
+
+
 <!--
 **DroneDude1/DroneDude1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
